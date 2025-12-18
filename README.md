@@ -1,2 +1,1 @@
-# ME
-about me. i heard that its important to have README about myself so....
+Im mostly calm, often silent in real life, and that shows in my profile. I dont like posting much, only when i feek like theres reason and project is ready. I cannot give all my time to coding because i have to maintain my GPA in school and sport n everything like this, so yeah... please star my reposs
